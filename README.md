@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @04nhatminh aka m0ss
+- 👀 I’m interested in coding, playing games, listening to music, watching videos about everything, etc...
+- 🌱 Beside coding, I’m currently learning English and Japanese
